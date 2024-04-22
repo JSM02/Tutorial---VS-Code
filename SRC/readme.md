@@ -1,13 +1,17 @@
 
-But I must explain to you how all this mistaken idea of denouncing pleasure and
-praising pain was born and I will give you a complete account of the system, and
-expound the actual teachings of the great explorer of the truth, the master-builder
-of human happiness. No one rejects, dislikes, or avoids pleasure itself, because
-it is pleasure, but because those who do not know how to pursue pleasure rationally
-encounter consequences that are extremely painful. Nor again is there anyone who
-loves or pursues or desires to obtain pain of itself, because it is pain, but because
-occasionally circumstances occur in which toil and pain can procure him some great
-pleasure. To take a trivial example, which of us ever undertakes laborious physical
-exercise, except to obtain some advantage from it? But who has any right to find fault
-with a man who chooses to enjoy a pleasure that has no annoying consequences, or one
-who avoids a pain that produces no resultant pleasure
+El Logos es Sabiduría, pero, al mismo tiempo, como adversario de la ignorancia,
+es Satán y Lucifer. Satán es el verdadero creador y bienhechor, el Padre espiritual
+de la humanidad, el Heraldo de la Luz, el brillante Lucifer que abrió los ojos del
+autómata "creado" por Jehová, y confirmó al linaje humano la inmortalidad espiritual.
+
+Impulsado por la ley del Karma y de la evolución eterna, el Ángel se encarnó como
+hombre en la tierra conservando todo su saber y conocimiento divinos. La Sabiduría
+divina, cayendo como un rayo (cadebat ut fulgur), avivó la inteligencia de aquellos
+que luchaban contra los demonios de la ignorancia y de la superstición. Satán puede
+considerarse alegóricamente como el Bien y el Sacrificio y como Dios de la Sabiduría.
+No sin razón, pues, se le ha calificado de "Adversario", porque es, como acaba de
+decirse, el Dios de la Sabiduría, y especialmente de la Sabiduría secreta, naturalmente
+opuesta a toda ilusión mundana y efímera, incluyendo en ella las religiones dogmáticas
+y eclesiásticas.
+
+Madame Blavatsky.
